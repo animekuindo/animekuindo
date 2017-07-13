@@ -1,0 +1,2 @@
+# animekuindo
+animekuindo.com
